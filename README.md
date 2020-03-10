@@ -1,0 +1,1 @@
+# ResembleJS-screenshots
